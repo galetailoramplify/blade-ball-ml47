@@ -1,4 +1,4 @@
-#  
+#  elite Script for scary shawarma kiosk offers the most advanced scary shawarma kiosk Script, with silent aim and instant win. Perfect for dominating
 
 
 
